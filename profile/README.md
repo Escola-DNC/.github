@@ -1,3 +1,5 @@
+![21_id_social media_capa_linkedin_perfil colaborador](https://github.com/Escola-DNC/.github/assets/148150652/4bc9e902-a71c-44c9-9e1a-32cad89388ac)
+
 # Olá, seja bem-vindo! 👋
 
 Somos a Escola DNC, a escola inovadora que prepara profissionais para o mercado. Especialistas em formar talentos, com foco em empregabilidade, migração de carreira, e aumento de performance. 🚀
